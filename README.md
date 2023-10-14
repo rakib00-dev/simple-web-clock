@@ -1,4 +1,4 @@
-<b>I did this just for practice. 😅😊. Your can modify or contribute if you want 😊.</b>
+<b>I did this just for practice. 😅😊. You can modify or contribute if you want 😊.</b>
 
 <b>Thank you</b>
 
